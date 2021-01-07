@@ -1,4 +1,6 @@
-### Hi there 👋
+### I am Catsandviolin1219, better known as MusicByCameron. I am a game dev and I also play the violin!!!
+
+I am smort because i found the seceret. the secret is ///////////////
 
 <!--
 **catsandviolin1219/catsandviolin1219** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
